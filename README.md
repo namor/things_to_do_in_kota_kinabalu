@@ -21,7 +21,7 @@ And KK businesses in general have a habit of randomly closing, especially after 
 - Fatt Kee Hilltop - Fish noodles.
 - Foo Phing Dim Sum
 - *New Gaya Seafood Restaurant @ Plaza Shell - Seafood.
-- *Kah Hiong Ngiu Chap - Sabah style beef noodles.
+- Kah Hiong Ngiu Chap - Sabah style beef noodles.
 - *Yii Siang Hainan Ngiu Chap - Laksa Ngui Chap.
 - *Tin Hiong Lau Inanam - Night. Dodgy looking area but amazing Ikan bakar and Lamb Satay 
 
