@@ -14,24 +14,27 @@ And KK businesses in general have a habit of randomly closing, especially after 
 
 ### Chinese Food
 - *Yee Fung Laksa - For laksa. Go for "Laksa King".
-- *Chef Huang Hilltop - Go for Tuaran Mee.
-- *Yu Hing Hilltop - Go for Seafood Beaufort Mee, pricey but amazing.
+- *Tuaran Mee Restaurant Inanam - Tuaran Mee.
+- *Yu Hing Hilltop - Go for Seafood Watan Beaufort Mee, pricey but amazing.
 - *Weng Foh Restaurant Damai - Go for the Tamparuli Mee. The polo bun there is good too.
-- *Kedai Kopi Jia Siang Lintas - Pork noodles (Sang Nyuk Mee), Sabah style.
+- *Kedai Kopi Jia Siang Lintas or Kedai Kopi Melanian - Pork noodles (Sang Nyuk Mee), Sabah style.
 - Fatt Kee Hilltop - Fish noodles.
-- Foo Phing Dim Sum - Available for takeaways at night.
+- Foo Phing Dim Sum
 - *New Gaya Seafood Restaurant @ Plaza Shell - Seafood.
 - *Kah Hiong Ngiu Chap - Sabah style beef noodles.
+- *Yii Siang Hainan Ngiu Chap - Laksa Ngui Chap.
+- *Tin Hiong Lau Inanam - Night. Dodgy looking area but amazing Ikan bakar and Lamb Satay 
+
 
 ### Modern/Fusion Food
 - *Kopiboy - Hainanese cafe. Toast, tonkatsu, coffee.
 - *Guan's Kopitiam - Hainanese cafe. Toasts, nasi lemak.
 
 ### Western Food
-- *Adelphi & Co - Best place to have steak.
-- *POUND Jesselton - I recommend Soft Shell Pasta & Cheeseburger.
-- *Gusto Food & Wine - Italian Food. Pizza, pasta, wine. 
-- Little Italy - Lasanga & pizza.
+- *Adelphi & Co Damai- Best place to have steak.
+- *POUND Jesselton Mall - I recommend Soft Shell Pasta & Cheeseburger.
+- *Gusto Food & Wine Waterfront- Italian Food. Pizza, pasta, wine. 
+- Little Italy Tapau - Lasanga & pizza.
 Don't go for fancy stuff, stay with the basics for best experience.
 - Happy Place.
 
